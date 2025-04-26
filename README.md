@@ -12,3 +12,13 @@ Any further actions taken against me will also be fully documented and disclosed
 
 Conditional Notice:
 If no official response is received within 48 hours from the initial warning, the lack of engagement itself will be included in the forthcoming disclosure to media outlets and relevant parties.
+
+Time Limit for Official Response:
+Based on the notification sent on April 26, 2025, at 9:34 PM (KST),
+the 48-hour deadline will expire on:
+
+– April 28, 2025, 9:34 PM (KST)
+– April 28, 2025, 5:34 AM (PDT, San Francisco Time)
+
+If no official response is received by this time,
+the matter will proceed to external disclosure without further notice.
