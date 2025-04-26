@@ -9,3 +9,6 @@ All related records have been securely documented.
 I am preparing to report this incident to multiple major media outlets without prior notice, either on Monday or Tuesday.
 
 Any further actions taken against me will also be fully documented and disclosed.
+
+Conditional Notice:
+If no official response is received within 48 hours from the initial warning, the lack of engagement itself will be included in the forthcoming disclosure to media outlets and relevant parties.
