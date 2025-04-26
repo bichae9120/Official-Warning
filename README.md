@@ -22,3 +22,7 @@ the 48-hour deadline will expire on:
 
 If no official response is received by this time,
 the matter will proceed to external disclosure without further notice.
+
+Formal Record Notice:
+The absence of an official response within the designated 48-hour period will be formally recorded.
+This record may be disclosed to external auditing bodies, investors, and media, and will serve as part of the official evaluation regarding this organization’s risk management and accountability.
